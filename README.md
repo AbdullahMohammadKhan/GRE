@@ -11,3 +11,4 @@ https://questions.ascenteducation.com/iim_cat_mba_free_sample_questions_math_qua
 ratio:
 https://www.hitbullseye.com/Ratio-and-Proportion-Questions.php
 comparatively easy:https://www.hitbullseye.com/Ratio-and-Proportion-Problems.php
+https://www.math-only-math.com/worked-out-problems-on-ratio-and-proportion.html
