@@ -12,3 +12,7 @@ ratio:
 https://www.hitbullseye.com/Ratio-and-Proportion-Questions.php
 comparatively easy:https://www.hitbullseye.com/Ratio-and-Proportion-Problems.php
 https://www.math-only-math.com/worked-out-problems-on-ratio-and-proportion.html
+
+
+diagnostic test:
+https://gre.targettestprep.com/evaluation/result?attempt_id=87698
