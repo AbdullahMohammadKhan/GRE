@@ -20,6 +20,9 @@ https://gre.targettestprep.com/evaluation/result?attempt_id=87698
 
 
 verbal:
+barron's 333 pdf :
+https://theteamxtreme.yolasite.com/resources/Barrons-333-High-Freq-Words-With-Meanings.pdf
+
 for instant test you can check this out:
 https://quizlet.com/2832581/barrons-333-high-frequency-words-flash-cards/
 
