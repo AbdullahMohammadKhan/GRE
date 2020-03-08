@@ -26,3 +26,9 @@ https://quizlet.com/2832581/barrons-333-high-frequency-words-flash-cards/
 for meaning and deeper understanding and GRE exam like example:
 https://www.vocabulary.com/dictionary/fawning
 
+
+
+Manhattan 500:
+https://www.youtube.com/playlist?list=PLYZACiD6j3Vuj2shy5qrZv0f497INANIE
+
+
